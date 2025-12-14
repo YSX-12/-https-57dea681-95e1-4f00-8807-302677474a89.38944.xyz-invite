@@ -27,7 +27,7 @@
 | 永不过期可乐小杯       | ¥18.00 | 一次性   | 共1000G                | 3台        | 全设备支持、多节点接入、流媒体解锁、TG客服、技术支持                        | 
 | 永不过期可乐（中杯）| ¥48.00 | 一次性   | 共5000G                | 3台        | 全设备支持、多节点接入、流媒体解锁、TG客服、技术支持                        | 
 
-> 注：“全设备支持”指兼容安卓/苹果/WIN/MAC；“TG客服”对应永久官网 https://tejiajichang.com 通知频道 https://t.me/tjiajic 吹水群 https://t.me/tjiajic1
+> 注：“全设备支持”指兼容安卓/苹果/WIN/MAC；“TG客服”对应永久官网 https://57dea681-95e1-4f00-8807-302677474a89.38944.xyz/#/register?code=m4CCvhfL 通知频道 https://t.me/tjiajic 吹水群 https://t.me/tjiajic1
 
 
 >开业时间：2022  
